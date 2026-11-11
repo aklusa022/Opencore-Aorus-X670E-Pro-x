@@ -1,0 +1,1 @@
+# Opencore-Aorus-X670E-Pro-x
